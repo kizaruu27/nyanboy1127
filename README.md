@@ -1,4 +1,9 @@
-### Hi there 👋
+### Hi👋, I'm Dionovan Ramadhani
+✨ I'm just a random guy who love make some random and absurd games
+
+✨ What I currently working on? I'm just try to be happy :)
+
+✨ Ouhh, I have some secret project that I want to share, but not right now, not this time. So be patient, I'll be in touch 😄
 
 <!--
 **nyanboy1127/nyanboy1127** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
